@@ -15,3 +15,5 @@ RianneAngelodearaujo37@gmail.com
 ![descrição do GIF](link GIF do Tenor)
 
 ![image](https://github.com/RIIanne25755455/RIIanne25755455/assets/167925077/78486a0d-e155-46a0-9fd8-0b2bf533f722)
+
+Este trabalho está licenciado sob CC BY 4.0. Para visualizar uma cópia desta licença, visite https://creativecommons.org/licenses/by/4.0/© 3 por R
